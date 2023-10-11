@@ -9,3 +9,5 @@ gknewlng;
 gkmwelewg;
 kbrlehkler+
 kmwgemkgwe;
+mbôkermôbre;
+gôkwemwemgew;
