@@ -13,3 +13,5 @@ mbôkermôbre;
 gôkwemwemgew;
 kbmôremlôb;
 ôlbre,reb;
+ôlbwmbemwlr;
+gôlwegleôw;
