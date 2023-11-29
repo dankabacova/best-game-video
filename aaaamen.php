@@ -9,6 +9,7 @@ pmewôlew;
 gknewlng;
 gkbjenhwhek
 hekwhlwehelw 
+hewlmhlkwemhlkew
 hewmhmweklhne
 hewmhlkmwkleh
 kmwekhôrenkl
