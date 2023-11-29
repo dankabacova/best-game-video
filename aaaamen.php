@@ -10,6 +10,7 @@ gknewlng;
 gkbjenhwhek
 hekwhlwehelw 
 hewlmhlkwemhlkew
+ôewhkewlnhlnewk
 hewmhmweklhne
 hewmhlkmwkleh
 kmwekhôrenkl
